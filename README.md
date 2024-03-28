@@ -6,5 +6,5 @@
 
 # 🌿 Contact me
 - ⚪ [Telegram](https://t.me/DunaConceptArtist)
-- ⚪ [VK]([https://www.youtube.com](https://vk.com/daniilvasilevskiy))
+- ⚪ [VK](https://vk.com/daniilvasilevskiy)
 - ⚪ [Gmail](https://mail.google.com/mail/u/?authuser=user@gmail.com)
